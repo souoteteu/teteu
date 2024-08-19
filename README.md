@@ -12,4 +12,4 @@ Meu nome é Matheus Felipe!
 
 @souoteteu
 
-![]([https://tenor.com/b0bBq.gif](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3A0ZXVzaGFwbDM3cnd6dGxiaWthYzZ3NGY3MThpanlxNWM1Z2V5cSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o6gE0QSc6H9DyplqE/giphy.gif))
+![1497533116-not-dead](https://github.com/user-attachments/assets/100adf61-f77e-47fb-a187-2b9c2224dd90)
